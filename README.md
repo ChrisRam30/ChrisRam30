@@ -6,4 +6,4 @@
 - 💬 Ask me about 
 - 📫 How to reach me: christopher.s.ram@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I am a pickleball ambassador
+- ⚡ Fun fact: I enjoy golf and pickleball
